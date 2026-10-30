@@ -1,1 +1,4 @@
 # ensina-plus-2026-unimar
+
+PROJETO PARA ASSERTI
+PLATAFORMA DIGITAL.
